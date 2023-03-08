@@ -1,1 +1,1 @@
-# kosice2-smart-semafory
+CRYING IN THE LIBRARY
